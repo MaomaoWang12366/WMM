@@ -1,0 +1,7 @@
+[法语电池标识.pdf](https://github.com/user-attachments/files/16745326/default.pdf)
+[Polish language.pdf](https://github.com/user-attachments/files/16745339/Polish.language.pdf)
+[Italian.pdf](https://github.com/user-attachments/files/16745367/Italian.pdf)
+[Spanish.pdf](https://github.com/user-attachments/files/16745368/Spanish.pdf)
+[German.pdf](https://github.com/user-attachments/files/16745370/German.pdf)
+[Dutch.pdf](https://github.com/user-attachments/files/16745371/Dutch.pdf)
+[Swedish language.pdf](https://github.com/user-attachments/files/16745372/Swedish.language.pdf)
